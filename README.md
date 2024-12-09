@@ -1,5 +1,5 @@
 # Hi Everyone 
-- Hello my name is Aroh Rain# Hello, World!
+- Hello my name is Aroh Rain I am 13 years old, You will learn more about me in the 'who am l' section.
 
 Welcome to my GitHub profile! 🌟  
 
