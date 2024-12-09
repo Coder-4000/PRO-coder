@@ -15,7 +15,7 @@ I’m just starting my journey in programming and loving every bit of it. I enjo
 > "The journey of a thousand miles begins with a single step."  
 
 ## Fun Facts About Me  
-- I’m a student who loves gaming.  
+- I’m a student who loves gaming and creating websites.  
 - MINI BLOCK Craft is my go-to game when I want to relax.  
 - I’m excited to one day build my own game!  
 
